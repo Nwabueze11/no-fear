@@ -1,0 +1,1 @@
+fird likes jsx files
